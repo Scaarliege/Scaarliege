@@ -37,7 +37,6 @@ idk how you got here but have fun reading
 - 🖥️ Coding: Well thats self explanitory innit
 - 🏸 Badminton: 7th year of play, finally decided to get a BWR
 - 🕹️ Gaming: Currently playing the shit out of Battlfield 4 and Outer Wilds
-- 
 
 ---
 
